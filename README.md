@@ -1,6 +1,6 @@
 ## Dominisha Weatherall
 
-### Data Analyst
+### Aspiring Data Analyst [Northeastern University] (https://www.datacamp.com/profile/weatheralld)
 
 - Excellent communicator & problem solver
 - Social media expert
